@@ -15,6 +15,7 @@
 5. Temperament
    - `Lewllyn`
 6. Expression
-   - Quirky characters
-   - Moral quandaries
-   - Dark humor
+   - Quirky characters: A character whose humor derives from the discrepancy
+   - Moral quandaries: Between the ideal of a moral
+   - Dark humor: Or divine justice and its realization
+ 
