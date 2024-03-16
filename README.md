@@ -4,7 +4,7 @@
                                /
                                 3. Diatonic
 
-1. Root
+1. [Root](https://www.proquest.com/docview/1519976792?sourcetype=Scholarly%20Journals)
    - [Schlemiel](https://archive.org/details/schlemielasmoder00ruth/page/n1/mode/2up)
 2. Pentatonic
    - Folk
@@ -15,7 +15,7 @@
 5. Temperament
    - `Lewllyn`
 6. Expression
-   - Quirky characters: A character whose humor derives from the discrepancy
+   - Quirky characters: A [character](https://profiles.stanford.edu/eitan-kensky) whose humor derives from the discrepancy
    - Moral quandaries: Between the ideal of a moral
    - Dark humor: Or divine justice and its realization
  
