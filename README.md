@@ -5,7 +5,7 @@
                                 3. Diatonic
 
 1. Root
-   - Schlemiel
+   - [Schlemiel](https://archive.org/details/schlemielasmoder00ruth/page/n1/mode/2up)
 2. Pentatonic
    - Folk
 3. Diatonic
