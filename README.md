@@ -13,11 +13,11 @@ Public Accolade vs. Search for Meaning: The portrayal of nihilists as inept anta
 2. Pentatonic
    - Folk
 3. Diatonic
-   - Pop
+   - Pop: I don't see a lot of [money](https://en.wikipedia.org/wiki/Inside_Llewyn_Davis) here: Salieri character 
 4. Chromatic
-   - Classical
+   - Jazz & Classical: John Goodman character
 5. Temperament
-   - `Lewllyn`
+   - `Lewllyn`: unwilling to compromise his idealized folk music
 6. Expression
    - Quirky characters/`Passive`/Deliverance: A [character](https://profiles.stanford.edu/eitan-kensky) whose humor derives from the discrepancy
       - Carefree sloth
