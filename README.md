@@ -24,3 +24,7 @@ Eschewing the effort required to obtain the rugs-to-riches biography, a number o
    - Dark humor/`Agent`/Reverence: Or divine justice and its realization
       - Nevertheless there's humor in cosmic entanglements this sloth ain't immune to 
  
+# Equation
+- Self-realization
+- Material accumulation 
+- Public accolade
