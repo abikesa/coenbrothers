@@ -25,6 +25,9 @@ Eschewing the effort required to obtain the rugs-to-riches biography, a number o
       - Nevertheless there's humor in cosmic entanglements this sloth ain't immune to 
  
 # Equation
-- Self-realization
-- Material accumulation 
-- Public accolade
+- Self-realization. Human condition
+   - What makes a man? (With Lacrimosa playing in the background: Lebowski v. Lebowski). Very briefly hinted at in "Inside Lewillyn Davis"
+- Material accumulation. Morality
+   - Suffering is indiscriminate, challenging the notion that good behavior shields one from misfortune (A Serious Man, where random characters are subjected to Chiguhrs coin toss)
+- Public accolade. Search for meaning
+   - Nihilists who are portrayed as absurd, comically `inept antagonists` (i.e., not worthy adversaries)
