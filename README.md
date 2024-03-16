@@ -1,3 +1,5 @@
+Eschewing the effort required to obtain the rugs-to-riches biography, a number of American heroes have remained perfectly satisfied with their [rags](https://muse.jhu.edu/pub/3/edited_volume/chapter/1483155)
+
                          1. Root
                                \
               2. Pentatonic -> 4. Chromatic -> 5. Temperament -> 6. Expression
