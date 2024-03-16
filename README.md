@@ -17,5 +17,6 @@
 6. Expression
    - Quirky characters: A [character](https://profiles.stanford.edu/eitan-kensky) whose humor derives from the discrepancy
    - Moral quandaries: Between the ideal of a moral
+      - He [redeems](https://muse.jhu.edu/pub/3/edited_volume/chapter/1483155) our often-soulless bourgeois striving  
    - Dark humor: Or divine justice and its realization
  
