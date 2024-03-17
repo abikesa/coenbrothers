@@ -11,7 +11,7 @@ Public Accolade vs. Search for Meaning: The portrayal of nihilists as inept anta
 1. [Root](https://www.proquest.com/docview/1519976792?sourcetype=Scholarly%20Journals)
    - [Schlemiel](https://archive.org/details/schlemielasmoder00ruth/page/n1/mode/2up)
 2. Pentatonic
-   - Folk
+   - Folk: One reason for this renewed interest may be that, in a world of monolithic commercialism, these naïve folk singers represent a quaint yet compelling instance of rebellion against the marketplace—and one that was mooted, if not rendered ridiculous, by the astounding, unique success of the movement’s exemplar
 3. Diatonic
    - Pop: I don't see a lot of [money](https://en.wikipedia.org/wiki/Inside_Llewyn_Davis) here: Salieri character 
 4. Chromatic
