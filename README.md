@@ -23,7 +23,7 @@ Public Accolade vs. Search for Meaning: The portrayal of nihilists as inept anta
       - Carefree sloth
    - Moral quandaries/`Verb`/Inference: Between the ideal of a moral
       - He [redeems](https://muse.jhu.edu/pub/3/edited_volume/chapter/1483155) our often-soulless bourgeois striving  
-   - Dark humor/`Agent`/Reverence: Or divine justice and its realization
+   - [Dark humor](https://www.thefilmdoctor.international/2010/02/what-can-such-sign-mean-schlemiel-and.html)/`Agent`/Reverence: Or divine justice and its realization
       - Nevertheless there's humor in cosmic entanglements this sloth ain't immune to 
  
 # Equation
