@@ -22,7 +22,8 @@ Public Accolade vs. Search for Meaning: The portrayal of nihilists as inept anta
    - Quirky characters/`Passive`/Deliverance: A [character](https://profiles.stanford.edu/eitan-kensky) whose humor derives from the discrepancy
       - Carefree sloth
    - Moral quandaries/`Verb`/Inference: Between the ideal of a moral
-      - He [redeems](https://muse.jhu.edu/pub/3/edited_volume/chapter/1483155) our often-soulless bourgeois striving  
+      - He [redeems](https://muse.jhu.edu/pub/3/edited_volume/chapter/1483155) our often-soulless bourgeois striving
+      - We also have some [blue notes](https://www.moviemaker.com/drive-away-dolls-ethan-coen-tricia-cooke/) that decode & recover what may have "seemed" lost in the sonic codification of the chromatic scale
    - [Dark humor](https://www.thefilmdoctor.international/2010/02/what-can-such-sign-mean-schlemiel-and.html)/`Agent`/Reverence: Or divine justice and its realization
       - Nevertheless there's humor in cosmic entanglements this sloth ain't immune to 
  
