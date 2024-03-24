@@ -37,3 +37,4 @@ Public Accolade vs. Search for Meaning: The portrayal of nihilists as inept anta
    - Suffering is indiscriminate, challenging the notion that good behavior shields one from misfortune (A Serious Man, where random characters are subjected to Chiguhrs coin toss)
 - Public accolade. Search for meaning
    - Nihilists who are portrayed as absurd, comically `inept antagonists` (i.e., not worthy adversaries)
+   - But Joel Coen brings us an "inept antagonist" in Macbeth, against whom `Athena` offers military strategem in the "moving forest"
