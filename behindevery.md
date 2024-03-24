@@ -22,6 +22,10 @@
 ### Fab/Decode/`City`
 - **Meter**/Temperament/Punish-Hang
    - Liberation with "meter"
+      - Reading Henry James' "Europeans"
+      - Being Indian-American
+      - Uptightness
+      - We're also "beyond" natural & legal (i.e., beyond good & evil)
 - **Iamb**/Expression/Self-Conscious
    - Freedom in "iamb"
    - Good, Bad, Ugly
