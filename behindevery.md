@@ -19,7 +19,8 @@ Coen [Brothers](https://nextbestpicture.com/looking-at-joel-ethan-coens-solo-dir
             - Injured senator was wearing a ski mask and in possession of a severed human dead
             - Of course: "I can explan," says recovering legislator   
 - Joel (Apollo)
-   - Technique?  
+   - Come what, come may (Macbeth)
+   - Greatness is promised thee (Lady Macbeth) 
  
                         1. Nichter/Morpheus 
                                            \
