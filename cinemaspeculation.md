@@ -1,0 +1,7 @@
+- Ethan's wife had some road trip
+   - We have gender identity issues there 
+- And Ethan just dramatized it by adding "higher" frequencies from the harmonic series:
+   - Mistaken identities
+   - Thereby looping in "milder" Chigurh-like characters
+   - So we essentially have a farse, quite unlike "No Country", which the Coen's didn't even write
+   - Remember: they don't do serious films!!
