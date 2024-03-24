@@ -1,10 +1,10 @@
 Coen [Brothers](https://nextbestpicture.com/looking-at-joel-ethan-coens-solo-directed-films-after-40-years-of-partnership/)
-- Ethan = Eccentric
+- Ethan (Dionysus) = Eccentric
    - Dogs
    - Staring
    - Humor
    - Existential Holla
-- Joel
+- Joel (Apollo)
    - Technique?  
  
                         1. Nichter/Morpheus 
