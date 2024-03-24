@@ -22,20 +22,25 @@
 - **Heaven**/Pentatonic/Volks (hell)
 
 ### Black/Code/`Farmer`
-- **Earth**/Diatonic/Straight-Jacketed
-- **Name**/Chromatic/Judge-`Identity`
+- **Earth**/Diatonic/Straight-Jacketed (childhood)
+   - Ultra conservative first-generation Hindu-American upbringing
+   - Texas bummer from the bible belt no less 
+- **Name**/Chromatic/Judge-`Identity` (adulthood)
    - Sexual `identity` of our protagonists
    - Car rental mixes up `identity` of drive-aways
       - What are the odds that Talahasi, Florida brings two worlds together (sexual identity vs. gangsta identity)
    - This is the premise of the "plot" of "Drive-Away Dolls" by Ethan Coen & his wife 
 
 ### Fab/Decode/`City`
-- **Meter**/Temperament/Punish-Hang
+- **Meter**/Temperament/Punish-Hang (innovation)
    - Liberation with "meter"
       - Reading Henry James' "Europeans"
       - Being Indian-American
       - Uptightness
       - We're also "beyond" natural & legal (i.e., beyond good & evil)
+   - We have Bad guys after some Good (or ok) folks
+      - No Country for Old Men: a tracker on the money
+      - Drive-Away Dolls: a tracker on the suitcase
 - **Iamb**/Expression/Self-Conscious
    - Freedom in "iamb"
    - Good, Bad, Ugly
