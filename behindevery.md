@@ -9,6 +9,14 @@
 
 ### White/Encode/`Hunter`
 - **[Poet](https://www.youtube.com/watch?v=Am18ZxKgi_g)**/Root/Deutschland
+   - Viswanathan's `dream` (talking of Morpheus) while in jail is reminiscent of "A Serious Man"
+      - She's on a trampoline and gets to see a naked neighbor sun-bathing
+      - As did our protagonist in suburban Minnesota when he climbed the roof to fix the TV arial
+      - Obviously this is something that happened to Joel and must've led to something
+         - The serious man got to smoke weed (how unserious!)
+         - Our Viswa discovered a latent lesbian inside her (but she's daughter of Indian immigrant!)
+         - Ethan, well, something happened and he's telling us in two films
+         - Regardless, this "overcoming" (roof, trampoline) allows our ear to hear higher harmonics (and in the suburbs!)  
 - **Heaven**/Pentatonic/Volks
 
 ### Black/Code/`Farmer`
