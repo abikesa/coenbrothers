@@ -24,6 +24,7 @@
 ### Black/Code/`Farmer`
 - **Earth**/Diatonic/Straight-Jacketed (childhood)
    - Ultra conservative first-generation Hindu-American upbringing
+      - Maybe I do "overthink" things 
    - Texas bummer from the bible belt no less 
 - **Name**/Chromatic/Judge-`Identity` (adulthood)
    - Sexual `identity` of our protagonists
