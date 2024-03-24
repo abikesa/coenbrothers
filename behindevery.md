@@ -1,14 +1,14 @@
 
  
-                        1. Nichter 
-                                  \
-                    2. Denker ->  4. Richter -> 5. Henke -> 6. Zeitgeist
-                                  /  
-                                  3. Volks/Land/WurdeZum
+                        1. Nichter/Morpheus 
+                                           \
+                       2. Denker/Hades ->  4. Richter/Dionysus -> 5. Henke/Prometheus -> 6. Zeitgeist/Athena
+                                           /  
+                                           3. Volks/Land/WurdeZum ~ Cosmogonia
 
 
 ### White/Encode/`Hunter`
-- **[Poet](https://www.youtube.com/watch?v=Am18ZxKgi_g)**/Root/Deutschland
+- **[Poet](https://www.youtube.com/watch?v=Am18ZxKgi_g)**/Root/Deutschland (love)
    - Viswanathan's `dream` (talking of Morpheus) while in jail is reminiscent of "A Serious Man"
       - She's on a trampoline and gets to see a naked neighbor sun-bathing
       - As did our protagonist in suburban Minnesota when he climbed the roof to fix the TV arial
@@ -19,7 +19,7 @@
          - Regardless, this "overcoming" (roof, trampoline) allows our ear to hear higher harmonics (and in the suburbs!)
          - But what exactly is the barrier? What is straight-jacketing us? Received wisdom? Judaism? Hinduism? Fear of `Hell`?
          - [Love is a sleigh ride to hell!](http://siffblog2.blogspot.com/2024/02/love-is-sleigh-ride-to-hell-in-ethan.html)
-- **Heaven**/Pentatonic/Volks
+- **Heaven**/Pentatonic/Volks (hell)
 
 ### Black/Code/`Farmer`
 - **Earth**/Diatonic/Straight-Jacketed
