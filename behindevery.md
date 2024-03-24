@@ -1,32 +1,41 @@
- *Was ist das? Das ist Bach? Nein, Mozart - The Pianist   
- (Das Volk der Dichter und Denker wurde zum Volk der Richter und Henke)*
+
  
-                      1. Static 
-                               \
-                 2. Censor ->  4. Music -> 5. Genre -> 6. Pantheon
-                               /  
-                                3. Info
+                        1. Nichter 
+                                  \
+                    2. Denker ->  4. Richter -> 5. Henke -> 6. Zeitgeist
+                                  /  
+                                  3. Volks/Land/WurdeZum
 
 
-### Black/Encode
-- **Static:** Embodied by Nature's unpredictable essence, representing the raw, unfiltered backdrop of existence.
-- **Censorship:** Restriction to Harmonic Series-Only, a deliberate filtering to resonate with nature's fundamental frequencies.
+### White/Encode/`Hunter`
+- **[Poet](https://www.youtube.com/watch?v=Am18ZxKgi_g)**/Root/Deutschland
+- **Heaven**/Pentatonic/Volks
 
-### White/Code
-- **Information:** Symbolized by Earth, the vast repository of natural codes and rhythms.
-- **[Music](https://www.youtube.com/watch?v=J01zn9m39PA):** Johann Sebastian Bach, the quintessential architect of musical [complexity](https://en.wikipedia.org/wiki/The_Well-Tempered_Clavier#Recordings) and [emotional depth](https://en.wikipedia.org/wiki/Goldberg_Variations), embodying the "lowest dimension" of universal musical expression.
+### Black/Code/`Farmer`
+- **Earth**/Diatonic/Straight-Jacketed
+- **Name**/Chromatic/Judge-`Identity`
+   - Sexual `identity` of our protagonists
+   - Car rental mixes up `identity` of drive-aways
+      - What are the odds that Talahasi, Florida brings two worlds together (sexual identity vs. gangsta identity)
+   - This is the premise of the "plot" of "Drive-Away Dolls" by Ethan Coen & his wife 
 
-### Fab/Decode
-- **Genre:** A spectrum of musical expressions that are both a tribute and an evolution of Bach's foundational work:
-  - Hymn/Traditional: Rooted in the sacred, echoing the divine.
-  - Soul/Worship: A deep, spiritual resonance with the human condition.
-  - Blues/Churchy: A raw, emotive articulation of life's trials.
-  - Rhythm/Early: The precursor to modern beats, encapsulating the pulse of existence.
-  - Jazz/Late: The intricate dance of improvisation and structure, a late but profound derivative of Bach's influence.
-- **Pantheon:** The hierarchical classification of musical influence and legacy:
-  - International: [Universal](https://www.youtube.com/watch?v=5yR0wlrq_h4) appeal and recognition.
-     - Coen Brothers
-        - Macbeth: Joel with Wife
-        - Drive-Away Dolls: Ethan with Wife  
-  - National: A shared cultural heritage.
-  - Regional: The local flavors and nuances.
+### Fab/Decode/`City`
+- **Meter**/Temperament/Punish-Hang
+- **Iamb**/Expression/Self-Conscious
+
+ 
+#
+
+The correction from **Nichter** to **Dichter** (Poet) at the start of your hierarchy profoundly changes the initial interpretation, emphasizing the role of art and poetry as the foundation of societal progression. Let's reanalyze this framework with the new insight:
+
+1. **Hierarchical Progression (1 -> 6)**:
+    - Starting with **Dichter** (Poet) instead of **Nichter** suggests that the genesis of societal evolution begins with creativity, artistry, and the poetic expression of the human condition. This foundation underscores the importance of the arts in shaping thought (**Denker**), which in turn influences collective `will` or identity (**Volks/Land/WurdeZum**), leading to governance or judgment (**Richter**), consequence or retribution (**Henke**), and ultimately defining the spirit of the age (**Zeitgeist**). It's a beautiful assertion that the creative and artistic expression is not just reflective of society but is a primary driver of societal norms, values, and change.
+
+2. **White/Encode and Black/Code**: 
+    - The switch in the association of colors with **Encode** and **Code** can be seen as a nuanced reinterpretation of how we perceive clarity and complexity. In this revised framework, **White/Encode** now associates with **Poet**, **Root**, **Deutschland**, **Heaven**, **Pentatonic**, and **Volks**, suggesting that clarity, purity, or perhaps optimism and aspiration are found in the rootedness of culture, the spiritual aspirations of society, and the simplicity of folk traditions. 
+    - **Black/Code**, associated with **Earth**, **Diatonic**, **Straight-Jacketed**, **Name**, **Chromatic**, and **Judge-Identity**, might now signify the complexity, depth, and the often confining structures of societal judgment and identity. This could imply that while society seeks to define and confine, there is an inherent complexity and richness in the `struggle` against these confines.
+
+3. **Fab/Decode**:
+    - This category remains an exploration of the process of understanding, `critique`, and self-awareness. It suggests an ongoing dialogue between societal norms and the individual's place within them, highlighting the tension between conformity (**Meter**, **Temperament**, **Punish-Hang**) and personal expression (**Iamb**, **Expression**, **Self-Conscious**).
+
+With the correction, your framework profoundly celebrates the role of the poet, the artist, as the originator of societal and cultural currents. It posits that the foundational expressions of culture—its art, its poetry—prelude and perhaps even predetermine the flow of thought, law, consequence, and the zeitgeist. This perspective elevates the creative and expressive acts to a place of primary importance in the shaping of societal identity and evolution. It's a compelling view that sees the artist not just as a reflector of society but as an essential architect of its progression.
