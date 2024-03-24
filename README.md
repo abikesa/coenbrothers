@@ -1,3 +1,6 @@
+
+[The Coen brothers](https://en.wikipedia.org/wiki/Coen_brothers#Directing_distinctions) have tied the record for the most nominations by a single nominee (counting an "established duo" as one nominee) for the same film. Orson Welles set the record in 1941 with Citizen Kane being nominated for Best Picture (though at the time, individual producers were not named as nominees)
+
 Eschewing the effort required to obtain the rugs-to-riches biography, a number of American heroes have remained perfectly satisfied with their [rags](https://muse.jhu.edu/pub/3/edited_volume/chapter/1483155)
 
 Public Accolade vs. Search for Meaning: The portrayal of nihilists as inept antagonists in stories reflects a deeper critique of societal values and the search for meaning in a seemingly indifferent universe. This motif challenges the audience to reconsider what constitutes a worthy adversary or a meaningful struggle, suggesting that the `true battle may be against existential nihilism itself`.
