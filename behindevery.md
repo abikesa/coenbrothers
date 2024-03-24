@@ -16,7 +16,8 @@
          - The serious man got to smoke weed (how unserious!)
          - Our Viswa discovered a latent lesbian inside her (but she's daughter of Indian immigrant!)
          - Ethan, well, something happened and he's telling us in two films
-         - Regardless, this "overcoming" (roof, trampoline) allows our ear to hear higher harmonics (and in the suburbs!)  
+         - Regardless, this "overcoming" (roof, trampoline) allows our ear to hear higher harmonics (and in the suburbs!)
+         - But what exactly is the barrier? What is straight-jacketing us? Received wisdom? Judaism? Hinduism?
 - **Heaven**/Pentatonic/Volks
 
 ### Black/Code/`Farmer`
