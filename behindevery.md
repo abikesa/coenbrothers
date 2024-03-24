@@ -8,6 +8,8 @@ Coen [Brothers](https://nextbestpicture.com/looking-at-joel-ethan-coens-solo-dir
          - These are all good people, important people
          - You little people tittilating yourselves with something that was never meant for you
          - Just trafficking in other peoples attainments
+         - Save us the sanctimony and hand us the millions
+         - I used to believe in the unfettered markets... 
    - Existential Holla
    - Absurdity
 - Joel (Apollo)
