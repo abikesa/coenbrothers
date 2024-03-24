@@ -21,7 +21,11 @@
 
 ### Fab/Decode/`City`
 - **Meter**/Temperament/Punish-Hang
+   - Liberation with "meter"
 - **Iamb**/Expression/Self-Conscious
+   - Freedom in "iamb"
+   - Good, Bad, Ugly
+   - Deity 
 
  
 #
