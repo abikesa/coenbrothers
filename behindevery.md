@@ -5,7 +5,8 @@ Coen [Brothers](https://nextbestpicture.com/looking-at-joel-ethan-coens-solo-dir
    - Humor
       - (Matt's character the senator takes off his hat):
          - We didn't deserve this, this `commodification`
-         - These are all good people
+         - These are all good people, important people
+         - You... trafficking in other peoples attainments
    - Existential Holla
    - Absurdity
 - Joel (Apollo)
