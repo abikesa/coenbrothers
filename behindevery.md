@@ -1,5 +1,5 @@
 Coen [Brothers](https://nextbestpicture.com/looking-at-joel-ethan-coens-solo-directed-films-after-40-years-of-partnership/)
-- Ethan (Dionysus) = Absurd
+- Ethan (Dionysus, i.e., the divinity of frenzy) = Absurd
    - Dogs
    - Staring
    - Humor
@@ -18,9 +18,16 @@ Coen [Brothers](https://nextbestpicture.com/looking-at-joel-ethan-coens-solo-dir
             - Channel was carrying human head, plaster penises
             - Injured senator was wearing a ski mask and in possession of a severed human dead
             - Of course: "I can explan," says recovering legislator   
-- Joel (Apollo)
+- Joel (Apollo, i.e., the error of passivity)
    - Come what, come may (Macbeth)
-   - Greatness is promised thee (Lady Macbeth) 
+   - Greatness is promised thee (Lady Macbeth)
+   > Whither should I fly?
+   > I have done no harm. But I remember now
+   > I am in this earthly world, where to do harm
+   > Is often laudable; to do good sometime
+   > Accounted dangerous folly: why then, alas,
+   > Do I put up that womanly defence,
+   > To say I have done no harm? What are these faces? (Lady Macduff)
  
                         1. Nichter/Morpheus 
                                            \
