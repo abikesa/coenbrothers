@@ -3,6 +3,9 @@ Coen [Brothers](https://nextbestpicture.com/looking-at-joel-ethan-coens-solo-dir
    - Dogs
    - Staring
    - Humor
+      - (Matt's character the senator takes off his hat):
+         - We didn't deserve this, this `commodification`
+         - These are all good people
    - Existential Holla
    - Absurdity
 - Joel (Apollo)
