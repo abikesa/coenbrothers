@@ -12,6 +12,12 @@ Coen [Brothers](https://nextbestpicture.com/looking-at-joel-ethan-coens-solo-dir
          - I used to believe in the unfettered markets... 
    - Existential Holla
    - Absurdity
+      - Nothing makes any fuckin' sense at the end of it all
+         - CHRONILE:
+            - Senator shot outside lesbian bar
+            - Channel was carrying human head, plaster penises
+            - Injured senator was wearing a ski mask and in possession of a severed human dead
+            - Of course: "I can explan," says recovering legislator   
 - Joel (Apollo)
    - Technique?  
  
