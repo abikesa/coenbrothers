@@ -1,5 +1,11 @@
 Coen [Brothers](https://nextbestpicture.com/looking-at-joel-ethan-coens-solo-directed-films-after-40-years-of-partnership/)
-
+- Ethan = Eccentric
+   - Dogs
+   - Staring
+   - Humor
+   - Existential Holla
+- Joel
+   - Technique?  
  
                         1. Nichter/Morpheus 
                                            \
