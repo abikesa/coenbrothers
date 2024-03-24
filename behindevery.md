@@ -36,6 +36,10 @@
 - **Meter**/Temperament/Punish-Hang (innovation)
    - Liberation with "meter"
       - Reading Henry James' "Europeans"
+         - The [Europeans](https://www.gutenberg.org/files/4363/4363-h/4363-h.htm) have had a "tense(r) bow" & much longer than any other culture
+         - And so they've shot much, much further with their arrows
+         - We get to see a Hindu girl catching up
+         - I've seen one too (but bipolar-assisted)
       - Being Indian-American
       - Uptightness
       - We're also "beyond" natural & legal (i.e., beyond good & evil)
