@@ -37,7 +37,9 @@ Coen [Brothers](https://nextbestpicture.com/looking-at-joel-ethan-coens-solo-dir
    - Sexual `identity` of our protagonists
    - Car rental mixes up `identity` of drive-aways
       - What are the odds that Talahasi, Florida brings two worlds together (sexual identity vs. gangsta identity)
-   - This is the premise of the "plot" of "Drive-Away Dolls" by Ethan Coen & his wife 
+   - This is the premise of the "plot" of "Drive-Away Dolls" by Ethan Coen & his wife
+   - Who are you (Matt Damon's character - a Repubican Senator of `Tallahasse, FL`)?
+      - Democrats! 
 
 ### Fab/Decode/`City`
 - **Meter**/Temperament/Punish-Hang (innovation)
