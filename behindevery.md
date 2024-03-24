@@ -18,6 +18,7 @@
          - Ethan, well, something happened and he's telling us in two films
          - Regardless, this "overcoming" (roof, trampoline) allows our ear to hear higher harmonics (and in the suburbs!)
          - But what exactly is the barrier? What is straight-jacketing us? Received wisdom? Judaism? Hinduism? Fear of `Hell`?
+         - [Love is a sleigh ride to hell!](http://siffblog2.blogspot.com/2024/02/love-is-sleigh-ride-to-hell-in-ethan.html)
 - **Heaven**/Pentatonic/Volks
 
 ### Black/Code/`Farmer`
