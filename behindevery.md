@@ -21,6 +21,7 @@ Coen [Brothers](https://nextbestpicture.com/looking-at-joel-ethan-coens-solo-dir
 - Joel (Apollo, i.e., the error of passivity)
    - Come what, come may (Macbeth)
    - Greatness is promised thee (Lady Macbeth)
+   - [At one fell swoop](https://www.gutenberg.org/files/1533/1533-h/1533-h.htm) (Macduff)
          
    > Whither should I fly?   
    > I have done no harm. But I remember now   
