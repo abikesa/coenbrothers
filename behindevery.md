@@ -2,6 +2,7 @@ Coen [Brothers](https://nextbestpicture.com/looking-at-joel-ethan-coens-solo-dir
 - Ethan (Dionysus, i.e., the divinity of frenzy) = Absurd
    - Dogs
    - Staring
+   - Bumbling Men
    - Humor
       - (Matt's character the senator takes off his hat):
          - We didn't deserve this, this `commodification`
