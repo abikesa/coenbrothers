@@ -41,7 +41,7 @@ Public Accolade vs. Search for Meaning: The portrayal of nihilists as inept anta
 
 # Drive-Away Dolls
 
-Comedians often refer to the concept of "setting you up" as the process of leading the audience towards a punchline. The setup in comedy is crucial; it's the part where the comedian gives the audience all the information they need to understand the upcoming joke. The punchline, then, is the climax or the payoff—it's the funny part that makes the joke land. 
+Comedians often refer to the concept of "setting you up" as the process of leading the audience towards a [punchline](https://www.youtube.com/watch?v=eYK7CxcaZw4). The setup in comedy is crucial; it's the part where the comedian gives the audience all the information they need to understand the upcoming joke. The punchline, then, is the climax or the payoff—it's the funny part that makes the joke land. 
 
 In a well-constructed joke, the setup is key because it not only primes the listener but also creates a sense of anticipation. The effectiveness of the punchline often hinges on how well the setup has been executed. A good setup builds expectation, and the punchline subverts that expectation in a surprising or humorous way. This subversion is what typically triggers laughter. 
 
