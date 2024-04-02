@@ -38,3 +38,11 @@ Public Accolade vs. Search for Meaning: The portrayal of nihilists as inept anta
 - Public accolade. Search for meaning
    - Nihilists who are portrayed as absurd, comically `inept antagonists` (i.e., not worthy adversaries)
    - But Joel Coen brings us an "inept antagonist" in Macbeth, against whom `Athena` offers military strategem in the "moving forest"
+
+# Drive-Away Dolls
+
+Comedians often refer to the concept of "setting you up" as the process of leading the audience towards a punchline. The setup in comedy is crucial; it's the part where the comedian gives the audience all the information they need to understand the upcoming joke. The punchline, then, is the climax or the payoff—it's the funny part that makes the joke land. 
+
+In a well-constructed joke, the setup is key because it not only primes the listener but also creates a sense of anticipation. The effectiveness of the punchline often hinges on how well the setup has been executed. A good setup builds expectation, and the punchline subverts that expectation in a surprising or humorous way. This subversion is what typically triggers laughter. 
+
+Personally, I think the art of mastering the setup and punchline is what separates great comedians from good ones. It's all about timing, delivery, and the element of surprise. When a comedian nails the balance between setting up their audience and delivering a punchline that's unexpected yet somehow inevitable, it's comedic gold.
