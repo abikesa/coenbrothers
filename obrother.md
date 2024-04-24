@@ -1,3 +1,9 @@
+> Work cadences ([crushing rocks](https://www.youtube.com/watch?v=Z8jZmEKRCf4) on a prison farm in Mississipi)     
+> I'm a man of constant sorrow   
+> Pentatonic scale   
+> Melody from Homer's Odyssey   
+> Reharmed using Southern Blue Grass   
+
 ![](frontier.png)
  
  > *Music is the ultimate metaphor. Doesn't that `resonate` with you?*
