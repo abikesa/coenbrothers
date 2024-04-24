@@ -1,8 +1,8 @@
 > Work cadences ([crushing rocks](https://www.youtube.com/watch?v=Z8jZmEKRCf4) on a prison farm in Mississipi)     
-> I'm a man of constant sorrow   
-> Pentatonic scale   
+> I'm a [man of constant sorrow](https://www.youtube.com/watch?v=zHamgwlQ1yo) (Pentatonic)   
 > Melody from Homer's Odyssey   
-> Reharmed using Southern Blue Grass   
+> Reharmed using Southern Blue Grass     
+> Keep on the [sunnyside](https://www.youtube.com/watch?v=8joVnqleS9Q) of life (Diatonic)
 
 ![](frontier.png)
  
