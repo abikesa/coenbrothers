@@ -1,6 +1,7 @@
 > Work cadences ([crushing rocks](https://www.youtube.com/watch?v=Z8jZmEKRCf4) on a prison farm in Mississipi)     
 > I'm a [man of constant sorrow](https://www.youtube.com/watch?v=zHamgwlQ1yo) (Pentatonic)   
-> Melody from Homer's Odyssey   
+> Melody from Homer's Odyssey      
+   - > Fits the pattern of chasing the rug, hat, Ulysses cat, magic flute, enstranged wife, etc.       
 > Reharmed using Southern Blue Grass     
 > Keep on the [sunnyside](https://www.youtube.com/watch?v=8joVnqleS9Q) of life (Diatonic)
 
