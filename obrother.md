@@ -20,7 +20,7 @@
 
 
 ### Man/Frontiers/Malum
-##### (Alterations/Meaning: ♭♭7,♭9,♯9,♯11,♭13) 
+##### (Alterations/Meaning: ♭9,♯9,♯11,♭13) 
 5. Temperament/Heretical
 6. Expression
 ### Art/Bustle/Se
@@ -28,7 +28,7 @@
 3. Diatonic/Mundane
 4. Chromatic
 ### God/Order/Prohibitum
-##### (Foundation/Stage: 1st, 3rd, 5th, 7th, 9th)
+##### (Foundation/Stage: 1st, 3rd, 5th, ♭♭7, 9th)
 1. Root/Ecclessiastical 
 2. Pentatonic
 
