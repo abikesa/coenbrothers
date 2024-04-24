@@ -1,6 +1,6 @@
 > [Taste](https://www.youtube.com/watch?v=h_B-fCGquhQ): Infuse their taste into every scene. Script is melody, Taste is chords, and Music is pocket   
 > Style: Focusing on this would make the product self-conscious, and in my view, contrived   
-> Effect: Critics are thus left with ambiguous films to review and struggle to place the genre   
+> Effect: Critics are thus left with `ambiguous`, sfumato, films to review and struggle to place the genre   
 
 ![](frontier.png)
 
