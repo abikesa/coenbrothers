@@ -4,7 +4,7 @@
 > Reharmed using Southern Blue Grass     
 > Keep on the [sunnyside](https://www.youtube.com/watch?v=8joVnqleS9Q) of life (Diatonic)
 
-*[fiendish](https://www.dailyscript.com/scripts/o_brother.html)*
+*[paterfamilias](https://www.dailyscript.com/scripts/o_brother.html)*
 
 ![](frontier.png)
  
