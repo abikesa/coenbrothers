@@ -1,3 +1,5 @@
+> The Coen Brothers are renowned for skillfully blending and subverting genre conventions, often creating films that defy easy categorization while paying homage to classic Hollywood genres like film noir, Western, and screwball comedy. In otherwords, their art is made out of the spirit of music: gradually embracing more remote overtones of the harmonic series!
+
 ![](https://www.economist.com/cdn-cgi/image/width=1424,quality=80,format=auto/sites/default/files/images/print-edition/20201024_BBD001_0.jpg)
 
 
